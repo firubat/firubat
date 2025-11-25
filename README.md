@@ -18,6 +18,6 @@ I am currently a Postdoctoral fellow at the University of Helsinky, working with
 
 🌐 My personal homepage is [uryaar.com](https://uryaar.com).
 
-Here are my [LinkedIn](www.linkedin.com/in/ur-yaar) profile and [ORCiD](https://orcid.org/0000-0003-3078-059X) page.
+Here are my [LinkedIn](https://www.linkedin.com/in/ur-yaar) profile and [ORCiD](https://orcid.org/0000-0003-3078-059X) page.
 
  
